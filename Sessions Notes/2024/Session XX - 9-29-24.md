@@ -1,0 +1,27 @@
+- [[Veilwood Glade:]] Orico was there
+	- Myths:
+		- Wisps that drift in the wood which have lost knowledge
+		- Guardian of the Veil - A massive ethereal stag in the Veil
+- [[Evangeline]] is looking for her sibling ([[Theo]])
+	- Not in Sursum - her father is looking for the sibling too
+- Help [[Ley]] @ Noon tomorrow
+- 6 Floors down = Living Floor
+	- Revolution Zero - Hidden under the [[Vortex Venery]]
+		- B1 = Meeting area
+		- B6 = Our floor
+			- Artificial lighting
+			- Starlight
+	- Shrine to Veritas in the base
+- Gang eats sandwiches (thanks [[6E]]) and monster
+	- [[Evangeline]] plays a glass flute!
+		- Quite somber and gorgeous
+- [[V]] makes an appointment with [[Rev]]
+	- V wonders how life would be if he had met Rev instead Xev
+- V wishes he hadn't been the one to cause all that harm and thinks Rev would've been able to prevent it
+- V asks Rev what happened to him
+	- Rev doesn't want to think about it
+	- Vexhila and Rev are related somehow
+	- Rev used to be a soldier, a long time ago
+	- Rev is the twin of V's boss
+
+ V naked counter: 4

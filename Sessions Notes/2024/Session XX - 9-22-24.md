@@ -1,0 +1,19 @@
+- [[Jezebel Weiss]]
+	- tall blonde fashionable woman
+	- friend of Roarke
+	- parents looking for her (cash reward)
+- Rina is probably hiding somewhere after the apothecary went down
+	- Empire is looking for people with ties to the empire - does Crane know why they'd want the apothecary?
+	- Karmen was taken by them
+- Uh... Jezebel the Saint?
+	- Leviathan's god was telling them to find Jezebel
+	- Lover of Jezebel (Former)
+	- Crane decides irrelevant
+	- R and Gemini says no
+- Only Gods and goddesses are worshipped
+	- Worshipping an idol is looked down on
+		- Idol worshipped -> creates a new god!
+	- Gods are real in this world!
+		- Understood and acknowledged
+- Idols are not worshipped in Sursum either
+- Gemini says they'll reach out to the followers of Jezebel for us

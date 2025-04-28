@@ -1,0 +1,3 @@
+[[6E]]
+
+The stag’s fey connection lingers with you. You can call upon a minor fey spirit for help once per day, performing a small task like spying or delivering a message. The fey spirit appears as a minature Guardian of the Veil unless otherwise instructed. This creature can be summoned permanently, but it can only assist you once per day. It is friendly towards you and forms a bond once summoned.

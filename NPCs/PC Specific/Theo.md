@@ -1,0 +1,1 @@
+Evangeline's sibling, who was captured (went missing), and was found being experimented on inside the Metal Canopy

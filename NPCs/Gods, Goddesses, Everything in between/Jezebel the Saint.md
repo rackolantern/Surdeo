@@ -1,0 +1,4 @@
+- Mythical goddess who has followers who are leviathans - mermaid was the goddess of the [[Leviathan]]
+- Kissing the mermaid who she saved a long time ago, but now doesn't know what happened to Jezebel
+- Worshipping an idol is looked down on, but enough people worship an idol, and they become a god!
+- 

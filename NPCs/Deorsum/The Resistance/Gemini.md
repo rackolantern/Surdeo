@@ -1,0 +1,2 @@
+A changeling espionage agent who collects information and deals in knowledge for Rev
+- Helped [[6E]] when he was trying to find a place to go originally - got the information about the Silver Anvil from them
